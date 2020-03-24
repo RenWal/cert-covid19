@@ -31,6 +31,9 @@ Bekanntmachungen](https://www.braunschweig.de/politik_verwaltung/bekanntmachunge
 
 ## Nordrhein-Westfalen
 
+**Bochum**
+ - [Sonderamtsblatt AllgV zu Ansammlungen vom 20.03.2020](https://www.bochum.de/C125830C0042AB74/vwContentByKey/F54A59736768EEB2C125853100526038/$FILE/amtsblatt_19_2020_Sonderausgabe.pdf)
+
 **Essen**
 
   - [Allgemeinverfügung
